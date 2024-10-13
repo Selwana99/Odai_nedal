@@ -1,0 +1,2 @@
+# Odai_nedal
+Trading 
